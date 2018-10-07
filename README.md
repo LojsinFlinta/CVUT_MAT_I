@@ -6,4 +6,6 @@ zimní semstr 2018/2019,
 
 Po - 14:15-15:45,
 
-Pá - 12:30-14:00
+Pá - 12:30-14:00,
+
+konzultace: bude upřesněno (zatím po dohodě e-mailem)
